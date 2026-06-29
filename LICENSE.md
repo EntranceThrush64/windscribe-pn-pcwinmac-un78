@@ -1,4 +1,4 @@
-# 
+# VIP Windscribe VPN predefinições para Mac OS | Inteligente Windscribe VPN predefinições para PC Windows. Com configurações privadas e suporte a torrent — otimizado para máximo desempenho em cada plataforma.
 
 
 
